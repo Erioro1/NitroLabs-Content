@@ -85,4 +85,54 @@ Whenever you have a project or an idea to work on, be it career or business chal
 And this could happen via contacting “NitroHelp” for a FREE advisory guide. Hope the content is useful? Do not hesitate to share your thoughts with us.
 
 
+                                         “5 Reason Why You Should USe Nitrolabs:”
+
+People who co-work shows a higher level of excellence than their office-based cohorts and this has enable them to have substantial autonomy.
+
+All thanks to technological breakthroughs, various forms of barriers (work & career) had been lifted. The next future of work is working from a remote convenient atmosphere without any iota of disturbance.
+We should all know that what the current events poses or is telling the human race is that some organizations no longer have the luxury or even see the need of making provisions for renting/owning a space that could encompass their staff.
+They are already on the verge of complete overhauling (reverse engineering) strategy, in which make it better and easier to work with smart people who could fit into the ongoing trend of work reality.
+In this article, you will discover reasons to start using our Co-Working space:
+
+1. Partnership Opportunity.
+
+In any atmosphere, we all know that building an effective partnership with others who shared your vision are more crucial at this current global pace change. 
+Just as why you must network yourself with others in your department, mostly your class representative to always stay relevant and get some latest genuine information. And failure to do so, you are at your own risk. 
+The world economy is fast-changing, and working collaboratively toward a common goal increases speed and exposes you to new stuff you might not have come up with.
+How did you think e-commerce platforms such as Alibaba, Amazon were able to achieve current feat, while other brick-and-mortar stores are sweating to cope?
+ 
+2. Central Location.
+
+We are located at the heart of the community, Under G, Ogbomoso.
+
+Literally, this make it easily accessible from all over the town and outside.
+So, your clients won’t find it difficult to reach you physically if there might be a need for such. And with access to our mail address, you can use our office address as your shipping address.
+ 
+3. Networking Events.
+
+As a community-driven platform, we draw inspiration from an adage which says: “Do not build a Nation for a man, but build a man for a Nation.”
+
+One of the fascinating challenges of these days is that after carefully taking a look at the current level of income inequality, we noticed that some potential, able-bodied people lack the skills to compete in today’s job market, whereas companies kept desperately searching for skilled workers.
+
+With this insight, we offer subsequent practical professional trainings, workshops, and boot camps.
+ 
+ 
+4. Cost-Effective Payment Plan.
+
+We all know that renting out a space is quite exorbitant nowadays. But officing at our workspace, we offer entrepreneurs, developers, freelancers a chance to work in an air-conditioned, comfortable atmosphere for an affordable and flexible rate without having to churn out avoidable expenses. 
+Our membership plans include:
+
+#1,000 Daily 
+#6,000 Weekly
+#20,000 Monthly 
+ 
+5. Promote Well Being.
+
+We promote an healthy work-life balance to reduce stress or anxiety during the course of the day. Our library shelves are filled with never-thought of resources, the lounge avenue provides you with access to some brain-relaxing games.
+An healthy well-being does not only make people productive, it also enables profitability.
+ 
+How did you think we can support your dream? Feel free to reach us via WhatsApp +2348068547148 or you can visit Nitrolabs today.
+
+
+
 
