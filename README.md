@@ -136,3 +136,50 @@ How did you think we can support your dream? Feel free to reach us via WhatsApp 
 
 
 
+                                    “Positioning Yourself for Opportunities in 2020:A Five-Tools Guide:”
+                                  
+The whole world is busy, there has never been room for slothfulness. Even most of the Start-ups and their so-called brothers, Multinational organizations continue in their rigorous pursuits of seeking the best of the best as regards working with them in terms of job employment. Please, don’t blame them or cast unnecessary aspersions. 
+However, it would interest you to know that despite the current holocaust (mediocrity menace) bedevilling the world, most especially, the African continent, the chosen ones still sufficed. 
+We both know that it is not as if they got some special powers or an in-built fortune, they are just good at what they do. You don’t need to have attained a 100% level of perfection before you could be able to join the few list of the identified CHOSEN ONES. Are you God? 
+All that is being expected of you has to do with how you could position yourself for some of the opportunities that lie ahead; can you train your eyes to see opportunities? Note, your background is not a factor here.
+In this article, you will discover some of the vital reasons why you should start using our Co-Working space:
+ 
+1. You Must Know That Anything is Possible on Planet Earth.
+
+Who would have thought about the emergence of the dot-com generation?
+Having studied the past three ages (Stone, Agrarian, Industrial) carefully, one would realize that their effects could not be compared to what the world enjoys now. Literally, the best time to be alive is now.
+With the breakthroughs of Conglomerates like Google, Yahoo, Facebook, the rate at which information is available right within our finger-tips is overwhelming. 
+What this implies is we not only need information but quality ones that would enable us to stay relevant. 
+Statistically, an average youth spends over 6-hours daily on their mobile phones and are still not productive. Ask yourself this, “what kind of information am I consuming?”
+Until we learn how to filter information that comes our way, the languish still remains.
+
+2. Be a Student of Literature.
+
+An adage which says that “if you want to be a leader, get ready to be a reader” is still potent. 
+Virtually, most people go around about all sorts of engagements but still, complain bitterly because of their continuous futile results. Opportunities are just like skills; you cannot offer what you don’t possess.
+To gain more insights, you must leaf through the pages of books, as this is the foundation that builds a man. And before a blink of an eye, the kind of mind needed for that opportunity would have been developed and well-nourished in the place of literature.
+The more we read, the more we understand unlimited resources around us. Also, when we read books, we get to be acquainted with some instances beyond our current level of capacity.
+
+3. Build Your Pool of Network.
+
+“Show me your friend and I will tell you the kind of individual you are.” 
+Seeing others securing all forms of opportunities is never magic. Enough of all those irrelevant friends that you have been moving with without any tangible proofs to show for it. If you really want to begin laying hands on some opportunities, you must start paying attention to your contact list, and this is known as the Law of Association.
+“Likes attract likes.” Most of what is killing some dreams today is not having the slightest knowledge or clue of how to differentiate between their acquaintances from career builders/helpers.
+This is just a simple principle of nature playing out here.
+
+4. Maximize the Power of Your Social Platforms.
+
+What are you using your social media accounts for? 
+This is another powerful weapon that you can wield when it comes to getting opportunities. In case you don’t know, there is always someone who knows another person, lurking around for potentials online. 
+Some people are guilty of posting irrelevant junks, such as when they are in a club smoking, gossiping about other people’s affairs, and few to mention via their social platforms, which is not good for any personal brand presence.
+Your accounts should be meant for developing capacity.
+
+5. Have a Mentor.
+
+While trying to become a global relevant citizen via different applications, it is very germane to have someone that could guide you. 
+One major fact that distinguishes mentors is their years of experience and expertise. Remember, they have been there before, which makes them the best possible shot. 
+There are some opportunities that warrants their input, especially the ones that have to involve Fellowships, Grants, etc.
+For more insight and guide on how to develop yourself and become a global force, kindly visit Nitrolabs, follow us on our social media platforms to air your view, or even share your view in the comment section below.
+
+
+
